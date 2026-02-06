@@ -5,7 +5,7 @@ Atualmente estou aprendendo **Desenvolvimento de Sistemas** no *SENAI-SP*
 
 -Fã de *Linkin Park* 🔥🔥🔥 e torcedor do *peixão* 🐳  
 
--Desempregado por opção (das empresas)
+-Desempregado por opção (das empresas) 💵
 
 -16 anos de idade 🎉
 
