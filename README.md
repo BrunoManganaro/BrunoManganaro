@@ -10,7 +10,6 @@ Atualmente estou aprendendo **Desenvolvimento de Sistemas** no *SENAI-SP*
 -16 anos de idade 🎉
 
 -Fã número 1 do Mega Blaziken 🐔🔥
-![EvolutionMegaGIF](https://github.com/user-attachments/assets/e84e2bc0-6bf4-44d5-ab55-d802df8c93b5)
 
 
 
