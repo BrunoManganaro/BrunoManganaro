@@ -1,16 +1,22 @@
-## Hi there 👋
+## Sobre mim
 
-<!--
-**BrunoManganaro/BrunoManganaro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Atualmente estou aprendendo **Desenvolvimento de Sistemas** no *SENAI-SP*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Fã de *Linkin Park* 🔥🔥🔥 e torcedor do *peixão* 🐳  
+
+-Desempregado por opção (das empresas)
+
+-16 anos de idade 🎉
+
+-Fã número 1 do Mega Blaziken 🐔🔥
+![EvolutionMegaGIF](https://github.com/user-attachments/assets/e84e2bc0-6bf4-44d5-ab55-d802df8c93b5)
+
+
+
+-Jogador semi-profissional de Pokémon Showdown e Clash Royale
+![cr](https://www.pngitem.com/pimgs/m/407-4070108_happy-clash-royale-emotes-hd-png-download.png)
+
+-Meus contatos:
+[Instagram](www.instagram.com/brunomanganaro7)
+
